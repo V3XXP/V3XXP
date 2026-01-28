@@ -14,7 +14,7 @@
 
 !semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that means anyone who struggles greatly to communicate. This could be people who speak in short sentances, people who only speak in echolalia, people who only speak when spoken to, people who’s sentences get switched around and words get jumbled. People whose speech is incoherent and unable to be understood.) 
 
-currently hyperfixated on: FORSAKEN ,, DOD ,, BIAST ,, PHIGHTING ,, SWTD
+currently hyperfixated on: COD ,, FORSAKEN 
 
 hvykins; Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman and Noli (FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit (PHIGHT), Bonnie, Lolbit, Golden Freddy (FNAF) 
 
