@@ -18,7 +18,7 @@ Chance sounds like Lovejoy.. his #1 kinnie btw!
 
 currently hyperfixated on: COD ,, FORSAKEN 
 
-hvykins; LOOOOGAAAN!! no seriously Logan Walker from CoD Ghosts.. anyone ...? , Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman and Noli (FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit (PHIGHT), Bonnie, Lolbit, Golden Freddy (FNAF) 
+ENORMOUS hvykin list; LOOOOGAAAN!! no seriously Logan Walker from CoD Ghosts.. anyone ...? , Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman and Noli (FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit (PHIGHT), Bonnie, Lolbit, Golden Freddy (FNAF) 
 
 ![vi16](https://github.com/user-attachments/assets/27a2e43a-b804-46bd-81c3-d908434cdb68)
 
