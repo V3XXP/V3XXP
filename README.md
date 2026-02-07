@@ -25,3 +25,4 @@ ENORMOUS hvykin list; LOOOOGAAAN!! no seriously Logan Walker from CoD Ghosts.. a
 
 <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/b72cfffc-515e-4ed4-8012-1501dbd627e9" />
 
+I am indeed a lonely goat
