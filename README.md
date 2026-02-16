@@ -1,9 +1,14 @@
-![](https://komarev.com/ghpvc/?username=V3XXP&color=grey)
+![](https://komarev.com/ghpvc/?username=V3XXP&label=/̵͇̿̿/’̿’̿ ̿ ̿̿ ̿̿ ̿̿)
 
  <img width="600" height="935" alt="image" src="https://github.com/user-attachments/assets/5e608d81-a04e-4714-8f78-52ff6f4de646" />
 
 
 ![d4ec844f](https://github.com/user-attachments/assets/719b8a06-5b77-40ee-8bed-3a1a70e16606)
+
+
+─── ⋆⋅☆⋅⋆ ────
+
+![rsz_movements](https://github.com/user-attachments/assets/f21b5820-821c-4c43-b92a-e73a0a512584)
 
 
 ─── ⋆⋅☆⋅⋆ ────
