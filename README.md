@@ -7,18 +7,20 @@
 
 ![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)
 
+*<h1>Theories of me beating up people because they are mean to my moots OR copy their skins are true. (honorable mention: @putmetorestimnotyourstosave)</h1>*
+
 
 . . 
 
 ![hyperlaser-phighting](https://github.com/user-attachments/assets/979f82f7-7b1a-4add-8ed5-5a46b61ea112)
 
-->> !minor (under 18)
+<h1>->> !minor (under 18)</h1>
 
-!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that means anyone who struggles greatly to communicate. This could be people who speak in short sentences, people who only speak in echolalia, people who only speak when spoken to, people who’s sentences get switched around and words get jumbled. People whose speech is incoherent and unable to be understood.) 
+_!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that means anyone who struggles greatly to communicate. This could be people who speak in short sentences, people who only speak in echolalia, people who only speak when spoken to, people who’s sentences get switched around and words get jumbled. People whose speech is incoherent and unable to be understood.)_
 
-currently hyperfixated on: COD ,, FORSAKEN ,, PHIIIIIGHTING !
+<h2>currently hyperfixated on: COD ,, FORSAKEN ,, PHIIIIIGHTING !</h2>
 
-ENORMOUS hvykin list; LOOOOGAAAN!! no seriously Logan Walker from CoD Ghosts.. anyone ...? , Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman and Noli (FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit (PHIGHT), Bonnie, Lolbit, Golden Freddy (FNAF) 
+<h2>ENORMOUS hvykin list; LOOOOGAAAN!! no seriously Logan Walker from CoD Ghosts.. anyone ...? , Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman and Noli (FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit (PHIGHT), Bonnie, Lolbit, Golden Freddy (FNAF)</h2>
 
 (how do I kin all of them? i just do ok thank you for reading)
 
