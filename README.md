@@ -15,7 +15,7 @@
 
 ->> !minor (under 18)
 
-!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that means anyone who struggles greatly to communicate. This could be people who speak in short sentances, people who only speak in echolalia, people who only speak when spoken to, people who’s sentences get switched around and words get jumbled. People whose speech is incoherent and unable to be understood.) 
+!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that means anyone who struggles greatly to communicate. This could be people who speak in short sentences, people who only speak in echolalia, people who only speak when spoken to, people who’s sentences get switched around and words get jumbled. People whose speech is incoherent and unable to be understood.) 
 
 currently hyperfixated on: COD ,, FORSAKEN ,, PHIIIIIGHTING !
 
