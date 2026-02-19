@@ -1,17 +1,17 @@
 <img width="600" height="935" alt="image" src="https://github.com/user-attachments/assets/5e608d81-a04e-4714-8f78-52ff6f4de646" />
 
-
-![d4ec844f](https://github.com/user-attachments/assets/719b8a06-5b77-40ee-8bed-3a1a70e16606)
-
-
-─── ⋆⋅☆⋅⋆ ────
-
-![rsz_movements](https://github.com/user-attachments/assets/f21b5820-821c-4c43-b92a-e73a0a512584)
+![phighting-blinkie](https://github.com/user-attachments/assets/9645aa5b-f716-49f6-8198-4667489587b5)
 
 
-─── ⋆⋅☆⋅⋆ ────
+![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)
+
+
+
+![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)
 
 . . 
+
+![hyperlaser-phighting](https://github.com/user-attachments/assets/979f82f7-7b1a-4add-8ed5-5a46b61ea112)
 
 ->> !minor (under 18)
 
@@ -26,6 +26,8 @@ ENORMOUS hvykin list; LOOOOGAAAN!! no seriously Logan Walker from CoD Ghosts.. a
 ![vi16](https://github.com/user-attachments/assets/27a2e43a-b804-46bd-81c3-d908434cdb68)
 
 
-<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/b72cfffc-515e-4ed4-8012-1501dbd627e9" />
+![hyperlaser-phighting](https://github.com/user-attachments/assets/e76c4ca0-d236-461c-b80c-a32033399c4b)
+
 
 I am indeed a lonely goat
+
