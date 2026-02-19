@@ -1,3 +1,5 @@
+![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)
+
 <img width="600" height="935" alt="image" src="https://github.com/user-attachments/assets/5e608d81-a04e-4714-8f78-52ff6f4de646" />
 
 ![phighting-blinkie](https://github.com/user-attachments/assets/9645aa5b-f716-49f6-8198-4667489587b5)
@@ -30,4 +32,6 @@ ENORMOUS hvykin list; LOOOOGAAAN!! no seriously Logan Walker from CoD Ghosts.. a
 
 
 I am indeed a lonely goat
+
+![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)
 
