@@ -7,7 +7,7 @@
 
 ![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)
 
-*<h1>Theories of me beating up people because they are mean to my moots OR copy their skins are true. (honorable mention: @putmetorestimnotyourstosave)</h1>*
+*<h1>Rumors of me beating up people because they are mean to my moots OR copy their skins are true. (honorable mention: @putmetorestimnotyourstosave)</h1>*
 
 
 . . 
