@@ -3,8 +3,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=30&pause=1000&color=B11E1E&center=true&vCenter=true&width=435&lines=I+see+London%2C+I+see+France..;Your+girl+in+her+underpants.;She+said+I'm+a+better+man%2C;Fingers+shining%2C+diamond+hands!)](https://git.io/typing-svg)
 
 
-![77noli-new-year](https://github.com/user-attachments/assets/5c1603c9-908f-4812-aaed-88c3fb13c3a1)
-
+<img width="333" height="477" alt="77nolli-removebg-preview" src="https://github.com/user-attachments/assets/0c740db6-e744-4b5b-b19e-73441ec3d2d7" /> art by me wee
 
 
 *<h1>Rumors of me beating up people because they are mean to my moots OR copy their skins are true. (honorable mention: @putmetorestimnotyourstosave)</h1>*
