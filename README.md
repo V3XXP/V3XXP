@@ -1,11 +1,11 @@
 ![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)
 
-<img width="600" height="935" alt="image" src="https://github.com/user-attachments/assets/5e608d81-a04e-4714-8f78-52ff6f4de646" />
-
-![phighting-blinkie](https://github.com/user-attachments/assets/9645aa5b-f716-49f6-8198-4667489587b5)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=30&pause=1000&color=B11E1E&center=true&vCenter=true&width=435&lines=I+see+London%2C+I+see+France..;Your+girl+in+her+underpants.;She+said+I'm+a+better+man%2C;Fingers+shining%2C+diamond+hands!)](https://git.io/typing-svg)
 
 
-![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)![divider](https://github.com/user-attachments/assets/0c0f98fd-389a-4a5f-91f0-47f09b40fabe)
+![77noli-new-year](https://github.com/user-attachments/assets/5c1603c9-908f-4812-aaed-88c3fb13c3a1)
+
+
 
 *<h1>Rumors of me beating up people because they are mean to my moots OR copy their skins are true. (honorable mention: @putmetorestimnotyourstosave)</h1>*
 
@@ -23,6 +23,8 @@ _!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that 
 <h2>ENORMOUS hvykin list; Logan Walker (CoD:Ghosts), Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman and 007n7 (FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit (PHIGHT), Bonnie, Lolbit, Golden Freddy (FNAF)</h2>
 
 (how do I kin all of them? i just do ok thank you for reading)
+
+![phighting-blinkie](https://github.com/user-attachments/assets/9645aa5b-f716-49f6-8198-4667489587b5)
 
 ![vi16](https://github.com/user-attachments/assets/27a2e43a-b804-46bd-81c3-d908434cdb68)
 
