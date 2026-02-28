@@ -20,7 +20,7 @@ _!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that 
 
 <h2>currently hyperfixated on: COD ,, FORSAKEN ,, PHIIIIIGHTING !</h2>
 
-<h2>ENORMOUS hvykin list; LOOOOGAAAN!! no seriously Logan Walker from CoD Ghosts.. anyone ...? , Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman and Noli (FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit (PHIGHT), Bonnie, Lolbit, Golden Freddy (FNAF)</h2>
+<h2>ENORMOUS hvykin list; Logan Walker (CoD:Ghosts), Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman and 007n7 (FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit (PHIGHT), Bonnie, Lolbit, Golden Freddy (FNAF)</h2>
 
 (how do I kin all of them? i just do ok thank you for reading)
 
