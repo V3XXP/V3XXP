@@ -1,6 +1,6 @@
 ![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=30&pause=1000&color=B11E1E&center=true&vCenter=true&width=435&lines=I+see+London%2C+I+see+France..;Your+girl+in+her+underpants.;She+said+I'm+a+better+man%2C;Fingers+shining%2C+diamond+hands!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=30&pause=300&color=B11E1E&center=true&vCenter=true&width=435&lines=I+see+London%2C+I+see+France..;Your+girl+in+her+underpants.;She+said+I'm+a+better+man%2C;Fingers+shining%2C+diamond+hands!)](https://git.io/typing-svg)
 
 
 <img width="333" height="477" alt="77nolli-removebg-preview" src="https://github.com/user-attachments/assets/0c740db6-e744-4b5b-b19e-73441ec3d2d7" /> art by me wee
