@@ -31,7 +31,7 @@ _!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that 
 ![hyperlaser-phighting](https://github.com/user-attachments/assets/e76c4ca0-d236-461c-b80c-a32033399c4b)
 
 
-I am indeed a lonely goat
+***Thank you for your patience.***
 
 ![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)
 
