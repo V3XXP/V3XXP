@@ -1,8 +1,8 @@
 ![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)
 
-<h1>if you have a sebastian solace plush, specifically the 2.0 one, that you want to resell, DM jay on discord I beg you ok? (_jay_x)</h1>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Barrio&size=30&duration=2999&color=5A5A5A&width=435&lines=%E2%98%BE+%22+Romance+is+boring!!+%22+%E2%98%BD)](https://git.io/typing-svg) 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tangerine&size=30&duration=4000&color=8F8F8F7E&width=435&lines=%E2%99%B0+%22+So+cry+havoc%2C+baby%2C+%22+%E2%99%B0;%E2%98%BE+%22+And+you're+the+one+for+me.+%22+%E2%98%BD)](https://git.io/typing-svg)
+<h1>if you have a sebastian solace plush, specifically the 2.0 one, that you want to resell, DM jay on discord I beg you ok? (_jay_x)</h1>
 
 <img width="333" height="477" alt="77nolli-removebg-preview" src="https://github.com/user-attachments/assets/0c740db6-e744-4b5b-b19e-73441ec3d2d7" /> art by me wee
 
