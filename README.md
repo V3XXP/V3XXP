@@ -12,6 +12,16 @@
 
 . . 
 
+${\textsf{\color{#596869} ⋆ call me Elias // Vex }}$
+
+${\textsf{\color{#6C8976} ⋆ HE/THEM preferred, I'm AFAB! }}$
+
+${\textsf{\color{#79B791} ⋆ I LOVE. I ADORE!!! GIFTING PEOPLE SKINS AND DRAWING FOR OTHERS!!!}}$
+
+${\textsf{\color{#ABD1B5} ⋆ so I BEG you not to be afraid to ask for something from me. I'll gladly do it!}}$
+
+${\textsf{\color{#E6EFE6} ⋆ my alts are for funsies.}}$
+
 ![hyperlaser-phighting](https://github.com/user-attachments/assets/979f82f7-7b1a-4add-8ed5-5a46b61ea112)
 
 <h1>->> !minor (under 18) + I like covering people a LOT. also getting covered so tell me if u dont want to be ok?</h1>
