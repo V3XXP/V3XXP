@@ -14,7 +14,7 @@
 
 ![hyperlaser-phighting](https://github.com/user-attachments/assets/979f82f7-7b1a-4add-8ed5-5a46b61ea112)
 
-<h1>->> !minor (under 18)</h1>
+<h1>->> !minor (under 18) + I like covering people a LOT. also getting covered so tell me if u dont want to be ok?</h1>
 
 _!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that means anyone who struggles greatly to communicate. This could be people who speak in short sentences, people who only speak in echolalia, people who only speak when spoken to, people who’s sentences get switched around and words get jumbled. People whose speech is incoherent and unable to be understood.)_
 
