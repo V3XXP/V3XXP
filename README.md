@@ -1,6 +1,6 @@
 ![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)![hazard-hazard-tape](https://github.com/user-attachments/assets/bc595ff5-cb10-4a3a-a7fc-e490939e7edc)
 
-![](https://komarev.com/ghpvc/?username=V3XXP&label=🦈๋࣭.*&color=grey&style=plastic)
+![](https://komarev.com/ghpvc/?username=V3XXP&label=🦈๋࣭.*&color=grey&style=plastic&base=2000)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Barrio&size=30&duration=2999&color=5A5A5A&width=435&lines=%E2%98%BE+%22+Romance+is+boring!!+%22+%E2%98%BD)](https://git.io/typing-svg) 
 
