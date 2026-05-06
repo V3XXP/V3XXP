@@ -4,6 +4,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Barrio&size=30&duration=2999&color=5A5A5A&width=435&lines=%E2%98%BE+%22+Romance+is+boring!!+%22+%E2%98%BD)](https://git.io/typing-svg) 
 
+*<h1>Being rude and/or mean is a defense mechanism for Vex. Since day one, okay? I apologize in advance.</h1>*
+
 <img width="333" height="477" alt="77nolli-removebg-preview" src="https://github.com/user-attachments/assets/0c740db6-e744-4b5b-b19e-73441ec3d2d7" />
 
 
@@ -24,11 +26,11 @@ ${\textsf{\color{#E6EFE6} ⋆ my alts are for funsies.}}$
 
 ![hyperlaser-phighting](https://github.com/user-attachments/assets/979f82f7-7b1a-4add-8ed5-5a46b61ea112)
 
-<h1>->> !minor (under 18) + I like covering people a LOT. also getting covered so tell me if u dont want to be ok?</h1>
+<h2>->> !minor (under 18) + I like covering people a LOT. also getting covered so tell me if u dont want to be ok?</h2>
 
 _!semiverbal, sometimes huge verbal shutdowns. (- Semiverbal is broad term that means anyone who struggles greatly to communicate. This could be people who speak in short sentences, people who only speak in echolalia, people who only speak when spoken to, people who’s sentences get switched around and words get jumbled. People whose speech is incoherent and unable to be understood.)_
 
-<h2>currently hyperfixated on: COD ,, FORSAKEN ,, PHIIIIIGHTING !</h2>
+<h3>currently hyperfixated on: COD ,, FORSAKEN ,, PHIIIIIGHTING !</h3>
 
 <h2>ENORMOUS list of chars I ball with; Logan Walker (CoD:Ghosts), Caz (SWTD), Ivan (bad things), Chance, 1x1x1x1, Builderman etc etc (FSK/non-FSK), Tyler Hernandez (SBG), Hyperlaser/Medkit/Chuck/Zuka [PHIGHT(/DITF)], Bonnie, Lolbit, Golden Freddy (FNAF)</h2>
 
